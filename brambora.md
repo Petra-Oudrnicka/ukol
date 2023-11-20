@@ -1,6 +1,6 @@
 # Brambora
 
-Kutálí se ze dvora
+Kutálí se z obchodu
 takhle velká brambora.
 
 Neviděla, neslyšela,
